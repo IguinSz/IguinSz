@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋, My name is Igor, and I'm in the 1st year of high school. 
 
 <!--
 **IguinSz/IguinSz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
