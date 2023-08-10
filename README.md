@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil!!
 
 Meu nome é Igor de Souza Carmelo
 
@@ -12,4 +12,4 @@ iguinntj@gmail.com
 
 antoniosouzazaramelo@gmail.com
 
-![descrição do GIF](link GIF do Tenor)
+
